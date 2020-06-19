@@ -4,7 +4,11 @@ Frankreich, im Jahr 1770: Die junge Malerin Marianne reist auf eine abgelegene I
 * ist rebellisch
 * weigert sich zu heiraten
 * lächelt geheimnisvoll
+
 Héloïse sagt im Film:
+
 > Wer soll das sein?
 > Du hast mich nie gesehen. 
 > Und falls doch, hast Du deinen eigenen Blick auf mich verraten.
+
+<img src="https://m.media-amazon.com/images/M/MV5BNDdiYjM3NzgtNzhhOS00OWQ4LWExMTEtZjFjYjRhZmYxYTJmXkEyXkFqcGdeQXVyMTE1OTkxNTkz._V1_SY1000_SX1600_AL_.jpg"/>
